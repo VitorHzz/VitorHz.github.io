@@ -1,2 +1,2 @@
-www.VitorHzz.github.io
+http://VitorHzz.github.io.com
 
